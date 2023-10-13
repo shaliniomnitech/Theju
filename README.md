@@ -102,4 +102,4 @@
     </script>
 </body>
 </html>
-https://shaliniomnitech.github.io/Theju/
+
