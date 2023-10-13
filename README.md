@@ -81,7 +81,7 @@
             
             Please know that I deeply regret my behavior, and I am committed to making amends. I promise to think about my confusion and I will correct it.<br><br>
             
-            Your understanding and forgiveness mean a lot to me. I value our relationship and will work to regain your trust.<br><br>
+            Your understanding and forgiveness mean a lot to me. I value our relationship and will work to regain our trust.<br><br>
             
             Thank you for your patience and understanding.<br><br>
         </p>
